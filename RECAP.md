@@ -1,1 +1,1 @@
-Recap on previos lesson
+Recap on previous lesson
